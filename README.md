@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @BiancaMadeiraDesigner
+- 👀 I’m interested in editorial design
+- 🌱 I’m currently learning design
+- 💞️ I’m looking to collaborate with editorial designers
+- 📫 How to reach me: here or on my linktree linktr.ee/bianca_madeira
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I love Asian Culture and do origamis
